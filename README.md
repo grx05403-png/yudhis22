@@ -1,2 +1,0 @@
-# yudhis22
-ys
